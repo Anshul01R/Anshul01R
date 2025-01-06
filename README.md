@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **anshul95858@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-KnkzG6Rk7yc_7sOadtmn3M46trDOMa7/view?usp=sharing](https://drive.google.com/file/d/1-KnkzG6Rk7yc_7sOadtmn3M46trDOMa7/view?usp=sharing)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1-KnkzG6Rk7yc_7sOadtmn3M46trDOMa7/view?usp=sharing](https://drive.google.com/file/d/14O5L3CeZMQDbZonav2WJZpktpfsSwHKH/view?usp=sharing)]
 
 - ⚡ Fun fact **I consider myself adept at both working smartly and diligently, blending efficiency with dedicated effort.**
 
